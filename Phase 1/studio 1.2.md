@@ -1,1 +1,1 @@
-
+Promppt: create a high contrast black and white photograph of three professionals having a serious discussion inside a conference hall. one person stands with both hands on a long wooden table while two others sit across each other on chair, one listening carefully while other gesturing while speaking. The room should have tall bookshelves on the back and a large window from where the light enters the room and table should be filled with office materials like laptop, pen, notebook and stanley. capture the scene as a candid photograph with a tense and thoughtful atmosphere
